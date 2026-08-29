@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **parmaranand328@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1h_6GRLq1JO53y9T5_QJxKnvcjUR_l7H7/view](https://drive.google.com/file/d/1h_6GRLq1JO53y9T5_QJxKnvcjUR_l7H7/view)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1KVB1ywZDvSzzq_DXYa9UccyQqqH0bseU/view?usp=drive_link]([https://drive.google.com/file/d/1h_6GRLq1JO53y9T5_QJxKnvcjUR_l7H7/view](https://drive.google.com/file/d/1KVB1ywZDvSzzq_DXYa9UccyQqqH0bseU/view?usp=drive_link))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
